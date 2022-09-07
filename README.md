@@ -8,4 +8,4 @@
 -->
 :smile::smile::smile:
 
-:heart::point_left:：[语雀](https://www.yuque.com/xianzhoukai/)
+:heart::point_right:：[语雀](https://www.yuque.com/xianzhoukai/)
